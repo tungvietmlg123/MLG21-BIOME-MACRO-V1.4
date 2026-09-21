@@ -7,3 +7,9 @@ Copy The Webhook URL and Your Private Server Link(remember Your server link must
 and paste it on My macro so you can use it
 
 goodluck.
+
+[My Server]
+https://discord.gg/G4WJSJav2S
+
+Check For MLG21 Biome Update!?
+link: https://discord.gg/8UpxCvT8QH
